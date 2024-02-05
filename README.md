@@ -1,0 +1,3 @@
+- BruhFan (also known as Burning Ceiling Fan)
+- He/him
+- Peanut butter
